@@ -1,0 +1,2 @@
+# KickerCoba
+NO GAME NO LEGEND
